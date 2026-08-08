@@ -1,4 +1,4 @@
-<img width="2000" height="960" alt="Image" src="https://github.com/user-attachments/assets/6f669f11-cc48-4e6e-89b4-26a07aa75255" />
+
 
 𝓘𝘧 𝘵𝘩𝘦𝘺 𝘴𝘢𝘺 𝘸𝘩𝘺 𝘸𝘩𝘺, 
 𝓣𝘦𝘭𝘭 '𝘦𝘮 𝘵𝘩𝘢𝘵 𝘪𝘵'𝘴 𝘩𝘶𝘮𝘢𝘯 𝘯𝘢𝘵𝘶𝘳𝘦.. 
